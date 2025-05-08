@@ -1,0 +1,1 @@
+# Reda-o-Paulista-Seu-aliado-contra-o-bloqueio-de-copiar-e-colar.-Escreva-sem-limites.
